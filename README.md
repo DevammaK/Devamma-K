@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DevammaK
+- 👋 Hi, I’m @Devamma K
 - 👀 I’m interested in .. Electrical
 - 🌱 I’m currently learning ..automatic accident prevention
 - 💞️ I’m looking to collaborate on ..
